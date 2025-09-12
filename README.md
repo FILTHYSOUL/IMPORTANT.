@@ -2,7 +2,7 @@
 
 
 I goes by— Ray, Rook, Doc, or Soul.    
-or you can even give me random nicknames.     
+or you can even give me random nicknames.    
 main acc ; @aviledoktxr (discord /aviledoktxr)      
 
 i speak ; Thai, English and Russian(amateur)   
@@ -17,8 +17,11 @@ Multifandom ; FNAF, Skycotl, Minecraft, CoD, TRUD, Depth Spelunking, Pressure, B
 ! i always love to make new friends, but ask before friending me!        
 :: hvy C+H, comf, usually nv       
 
-all pronouns are fine, he/him are preferred
-, 
+all pronouns are fine, he/him are preferred.
+
+
+....
+
 
 **STATUS**
 
@@ -37,8 +40,18 @@ all pronouns are fine, he/him are preferred
 **IMPORTANT NOTE** :
 
 
-I do a lot of shadings test, I always try new styles and if its look similar to yours. Let me know.
+: I do a lot of shadings test, I always try new styles and if its look similar to yours. Please let me know.
 
 
 
 " heavily inspirations are limited to close friends only , ask permission before taking slight inspo and do not copy any of my skins . please be aware that i got copied a lot before , if you see anyone copying me . . please do contact me and let me know "
+
+
+: and oh, I suggest you to avoid chatting/interact with me if youre under 15+ , this is for your own good and myself.    
+
+
+....   
+
+
+**Thanks for your understanding. Sincerely.**       
+— Forever Filthy Soul      
