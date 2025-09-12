@@ -2,7 +2,8 @@
 
 
 I goes by— Ray, Rook, Doc, or Soul.    
-or you can even give me random nicknames. main acc ; @aviledoktxr (discord /aviledoktxr) 
+or you can even give me random nicknames.     
+main acc ; @aviledoktxr (discord /aviledoktxr)      
 
 i speak ; Thai, English and Russian(amateur)   
 kinsong ; Shun-ran , Inazuma by John/TOOBOE on YouTube !    
