@@ -8,16 +8,17 @@ main acc ; @aviledoktxr (discord /aviledoktxr)
 i speak ; Thai, English and Russian(amateur)   
 kinsong ; Shun-ran , Inazuma by John/TOOBOE on YouTube !    
 
-Multifandom ; FNAF, Skycotl, Gacha Community, Minecraft, CoD, TRUD, Depth Spelunking, Pressure, Blocktale, Dandy's World, Forsaken, DOD, PHIGHTING, and many more!
+Multifandom ; FNAF, Skycotl, Minecraft, CoD, TRUD, Depth Spelunking, Pressure, Blocktale, Dandy's World, Forsaken, SEWH, DOD, PHIGHTING, and many more!
 
 .
 
 :: mostly sitting alone . always iwc    
 ! int and C+H with me, please. I dont bite..   
-:: hvy C+H, comf, usually nv
+! i always love to make new friends, but ask before friending me!        
+:: hvy C+H, comf, usually nv       
 
 all pronouns are fine, he/him are preferred
-
+, 
 
 **STATUS**
 
