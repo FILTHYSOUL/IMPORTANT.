@@ -8,7 +8,7 @@ main acc ; @aviledoktxr (discord /aviledoktxr)
 i speak ; Thai, English and Russian(amateur)   
 kinsong ; Shun-ran , Inazuma by John/TOOBOE on YouTube !    
 
-Multifandom ; FNAF, Skycotl, Minecraft, CoD, TRUD, Depth Spelunking, Pressure, Blocktale, Dandy's World, Forsaken, SEWH, DOD, PHIGHTING, and many more!
+Multifandom ; FNAF, Skycotl, Minecraft, Alan Becker(AvA/AvM), CoD, TRUD, Depth Spelunking, Pressure, Blocktale, Dandy's World, Forsaken, SEWH, DOD, PHIGHTING, and many more!
       
       
 ....      
@@ -49,11 +49,14 @@ all pronouns are fine, he/him are preferred.
 " heavily inspirations are limited to close friends only , ask permission before taking slight inspo and do not copy any of my skins . please be aware that i got copied a lot before , if you see anyone copying me . . please do contact me and let me know "
        
         
-: and oh, I suggest you to avoid chatting/interact with me if youre under 15+ , this is for your own good and myself.    
-        
+: dont be weird or inappropriate around me unless you're an adult.       
+and oh, I suggest you to avoid chatting/interact with me if youre under 15+ , this is for your own good and myself.       
+I am myself over 18+ years, so be mindful of our interactions. I do not want anything bad happened.                       
+
+
         
 ....   
          
         
 **Thanks for your understanding. Sincerely.**       
-— Forever Filthy Soul      
+— Forever Filthy Soul       
